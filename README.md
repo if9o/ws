@@ -1,2 +1,1 @@
-F9o
-Snap i7v.w
+F9O SC:i7v.w
